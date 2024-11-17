@@ -11,5 +11,5 @@ Fandoms im in
   Music Artists I like
   : Azavana(Ashmaze) 🔥
    Rory in Early 20s 🌺
-   Yuno Miles🤑
+   Yuno Miles🤑.
 
